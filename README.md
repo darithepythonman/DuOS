@@ -1,5 +1,7 @@
 # DuOS
-DuOS is an operating system created on Feb 26, 2026. Created by Darii, This was a Hobby Project, and i do Not Recommend Using this as your operating system....
+DuOS is an operating system created on Feb 26, 2026. Created by Darii, This was a Hobby Project, and i do Not Recommend Using this as your operating system...
+
+-------------
 Feb 24, 2026
 -------------
 decided to make a Linux distro
