@@ -86,6 +86,6 @@ AND THEN
 THEN I HEAR EVEN LOUDER MISSLES OUTSIDE.
 IRAN IS SENDING MISSLES TORWARDS TEL AVIV.
 ALL WIFI AND INTERNET CONNECTIONS ARE CUT OFF IN IRAN.
-i heard some of the missles fell mid way to iran....
-#THE END
+i almost pissed my pants when i heard some of the missles fell mid way to bombing isreal
+ik im exagerrating but like its a death situation i can die if they send an atomic bomb
 
