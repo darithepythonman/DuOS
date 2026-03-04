@@ -76,18 +76,28 @@ i slept 1:00 AM.
 -------------------------
 Feb 29, 2026
 -------------------------
-i decided to upload it to github
-to get some recogniton.
-but then the new came on.
-"BREAKING NEWS: WW3 MIGHT BE HAPPENING"
-"AMERICA HAS BOMBED IRAN"
-Keep in mind I LIVE IN IRAQ.
-I COULD HEAR MISSLES FROM OUTSIDE
-AND THEN
-"IRAN IS BOMBING ISREAL".
-THEN I HEAR EVEN LOUDER MISSLES OUTSIDE.
-IRAN IS SENDING MISSLES TORWARDS TEL AVIV.
-ALL WIFI AND INTERNET CONNECTIONS ARE CUT OFF IN IRAN.
-i almost pissed my pants when i heard some of the missles fell mid way to bombing isreal
-ik im exagerrating but like its a death situation i can die if they send an atomic bomb
+i decided to upload this to github 
+the ISO wasnt under 25MB so i couldnt upload it
+i uploaded the file to mediafire
+
+
+
+
+
+
+
+
+
+
+
+
+------------------------
+Mar 4, 2026
+-------------------------
+
+DuOS is Discontinued 
+no more updates
+i lost intrest
+ill make linux from scratch
+just wait
 
